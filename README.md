@@ -10,7 +10,7 @@ https://play.google.com/store/search?q=Geo+CRM&c=apps&pli=1
 
 ## Youtube Video Associated with My Working
 
-[![Watch the video on YouTube](https://img.youtube.com/vi/CQ2PpI6EPco/maxresdefault.jpg)](https://youtu.be/CQ2PpI6)
+[![Watch the video on YouTube](https://img.youtube.com/vi/CQ2PpI6o/maxresdefault.jpg)](https://youtu.be/CQ2PpI6)
 
 
 
